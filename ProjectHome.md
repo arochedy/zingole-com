@@ -1,0 +1,1 @@
+Le site Zingole.com permet de sanctionner toutes celles et ceux qui font des zingoleries. Grace a des votes précis et impartials, les zingoles sont sanctionnées et permettent d'établir un véritable classement de la plus grosse Zingole.
